@@ -18,7 +18,7 @@
 ![](https://i.gyazo.com/cc8ffdb6babdda40b2ee8c9c60007668.png)
 
 # [- + dog skin! (1)](https://drive.google.com/open?id=1GEZx7lujN2S4zV1S-KuwxHPEQJjLj_An)
-![](https://gyazo.com/b5672a3c287876384379ff6373029607)
+![](https://i.gyazo.com/b5672a3c287876384379ff6373029607.png)
 
 # [- + morgan final](https://www.dropbox.com/s/fm1v0p1ndxepkyv/-%20%2B%20morgan%20final.osk?dl=0)
 ![](https://i.gyazo.com/85fc18650e021f4d23fa50352cbff94b.png)
@@ -33,9 +33,9 @@
 ![](https://skins.osuck.net/uploads/posts/2018-09/1537791350_c8kzhkg.jpg)
 
 # [#BeasttrollMC #1](http://www.mediafire.com/file/t9dr6wz2o6ri6wc/%23BeasttrollMC%20%231.osk)
-! [](https://skins.osuck.net/uploads/posts/2018-09/1537791416_gutkr9b.jpg)
+![](https://skins.osuck.net/uploads/posts/2018-09/1537791416_gutkr9b.jpg)
 
 # [#BeasttrollMC #3](http://www.mediafire.com/file/ghds1jtiyktym48/%23BeasttrollMC_%233.osk/file)
-! [](https://skins.osuck.net/uploads/posts/2018-09/1537791413_1wq0xhs.jpg)
+![](https://skins.osuck.net/uploads/posts/2018-09/1537791413_1wq0xhs.jpg)
 
 
