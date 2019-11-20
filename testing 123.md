@@ -17,7 +17,7 @@
 # [- # Noel Chan EDITED](https://www.mediafire.com/file/ao4n44v64my21pf/-_%23_Noel_Chan_EDITED.osk/file)
 ![](https://i.gyazo.com/cc8ffdb6babdda40b2ee8c9c60007668.png)
 
-# [- + dog skin! (1)](https://drive.google.com/open?id=1GEZx7lujN2S4zV1S-KuwxHPEQJjLj_An)
+# [. * ⁕ ✿ santa monica ✿ ⁕ * .](https://www.dropbox.com/s/8j6w25m2hnk5vfy/tko.osk?dl=0)
 ![](https://i.gyazo.com/b5672a3c287876384379ff6373029607.png)
 
 # [- + morgan final](https://www.dropbox.com/s/fm1v0p1ndxepkyv/-%20%2B%20morgan%20final.osk?dl=0)
