@@ -3,7 +3,10 @@
 # If a skin you wanted to download isn't here, just let me know either in osu! or in my twitch chat.
 
 # [- ᚖBLOO V1.1ᚖ -](https://www.mediafire.com/file/z78uefdq7l13r86/-__________________%u1696Bloo_v1.1%u1696__________________-.osk/file)
-![](https://skins.osuck.net/uploads/posts/2020-04/1585900523_screenshot8336.jpg)
+![](https://skins.osuck.net/uploads/posts/2020-04/1585900489_screenshot8339.jpg)
+
+# [- ᚖBloo-DTᚖ -](http://www.mediafire.com/file/hro48f3idireivw/-_%E1%9A%96Bloo-DT%E1%9A%96_-.osk)
+![](https://skins.osuck.net/uploads/posts/2019-09/1569427154_screenshot6504.jpg)
 
 # [-        # WhiteCat (1.0) 『CK』 #-](https://www.mediafire.com/folder/3vnwgwe8vcsrv/WhiteCat)
 ![](https://i.gyazo.com/0cf64f90fa420397ce6b9bf92b2823b2.png)
@@ -14,7 +17,10 @@
 # [-        # WhiteCat (1.0) 『NM』 #-](https://www.mediafire.com/folder/3vnwgwe8vcsrv/WhiteCat)
 ![](https://i.gyazo.com/282f0811a8fabc106440f4adc950e40f.png)
 
-# [-      #Aoki [1.1] (SK)](http://www.mediafire.com/file/2ycp22uhbahmty1/-_%2523Aoki_%255B1.1%255D_%2528SK%2529.osk/file)
+# [- # owoTuna {1.4} # - ](https://www.mediafire.com/folder/o21fi175pw714/owoTuna%201.4)
+![](https://skins.osuck.net/uploads/posts/2019-07/1564486916_screenshot6203.jpg)
+
+# [-      #Aoki [1.1] (SK)](https://www.mediafire.com/file/2ycp22uhbahmty1/-_%2523Aoki_%255B1.1%255D_%2528SK%2529.osk/file)
 ![](https://i.gyazo.com/c6d82ad84cd69a7a098cc4a74cee9de7.png)
 
 # [- # Noel Chan EDITED](https://www.mediafire.com/file/ao4n44v64my21pf/-_%23_Noel_Chan_EDITED.osk/file)
@@ -22,6 +28,9 @@
 
 # [. * ⁕ ✿ santa monica ✿ ⁕ * .](https://www.dropbox.com/s/8j6w25m2hnk5vfy/tko.osk?dl=0)
 ![](https://i.gyazo.com/b5672a3c287876384379ff6373029607.png)
+
+# [-   Nalian_](https://www.mediafire.com/file/67q3sx2mjqttgxa/-_____Nalian_.osk/file)
+![](https://osu.ppy.sh/ss/14930171/0683.png)
 
 # [- + morgan final](https://www.dropbox.com/s/fm1v0p1ndxepkyv/-%20%2B%20morgan%20final.osk?dl=0)
 ![](https://i.gyazo.com/85fc18650e021f4d23fa50352cbff94b.png)
