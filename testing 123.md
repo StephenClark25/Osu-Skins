@@ -32,11 +32,20 @@
 # [-   Nalian_](https://www.mediafire.com/file/67q3sx2mjqttgxa/-_____Nalian_.osk/file)
 ![](https://osu.ppy.sh/ss/14930171/0683)
 
+# [- - - vamhi+danksliders+elohere](https://www.mediafire.com/file/kfghxydzcog7jj8/-_-_-_vamhi+danksliders+elohere.osk/file)
+![](https://skins.osuck.net/uploads/posts/2019-11/1574488169_screenshot7324.jpg)
+
+# [-#Default Beard Mix](http://www.mediafire.com/file/5tcmylkdbxdnu97/-_%2523Default_Beard_Mix.osk/file)
+![](https://osu.ppy.sh/ss/14930195/805d)
+
 # [- + morgan final](https://www.dropbox.com/s/fm1v0p1ndxepkyv/-%20%2B%20morgan%20final.osk?dl=0)
 ![](https://i.gyazo.com/85fc18650e021f4d23fa50352cbff94b.png)
 
 # [- morgan](https://www.mediafire.com/file/it1milcx8jfr1dm/-_+_morgan_final.osk/file)
 ![](https://skins.osuck.net/uploads/posts/2019-10/1571897172_screenshot6809.jpg)
+
+# [-freddie+fami+aireuvv](https://masterchefcanada.s-ul.eu/Y5N3gZxW)
+![](https://osu.ppy.sh/ss/14930207/11b6)
 
 # [- YUGEN FINAL WS -](https://www.mediafire.com/file/r3oivckreh8nrqn/-_YUGEN_-.osk/file)
 ![](https://skins.osuck.net/uploads/posts/2018-09/1538054483_screenshot258.jpg)
