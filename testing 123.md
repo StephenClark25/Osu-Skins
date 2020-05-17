@@ -30,7 +30,7 @@
 ![](https://i.gyazo.com/b5672a3c287876384379ff6373029607.png)
 
 # [-   Nalian_](https://www.mediafire.com/file/67q3sx2mjqttgxa/-_____Nalian_.osk/file)
-![](https://osu.ppy.sh/ss/14930171/0683.png)
+![](https://osu.ppy.sh/ss/14930171/0683)
 
 # [- + morgan final](https://www.dropbox.com/s/fm1v0p1ndxepkyv/-%20%2B%20morgan%20final.osk?dl=0)
 ![](https://i.gyazo.com/85fc18650e021f4d23fa50352cbff94b.png)
