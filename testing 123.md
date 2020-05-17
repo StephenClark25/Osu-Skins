@@ -2,6 +2,9 @@
 
 # If a skin you wanted to download isn't here, just let me know either in osu! or in my twitch chat.
 
+# [- ᚖBLOO V1.1ᚖ -](https://www.mediafire.com/file/z78uefdq7l13r86/-__________________%u1696Bloo_v1.1%u1696__________________-.osk/file)
+![](https://skins.osuck.net/uploads/posts/2020-04/1585900523_screenshot8336.jpg)
+
 # [-        # WhiteCat (1.0) 『CK』 #-](https://www.mediafire.com/folder/3vnwgwe8vcsrv/WhiteCat)
 ![](https://i.gyazo.com/0cf64f90fa420397ce6b9bf92b2823b2.png)
 
